@@ -1,1 +1,0 @@
-No system is secure. Stay alert 24/7.
